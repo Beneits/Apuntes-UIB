@@ -1,2 +1,2 @@
-# Apuntes-UIB
+# Física
 nothing to see here
