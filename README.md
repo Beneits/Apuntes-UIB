@@ -1,2 +1,2 @@
-# Apuntes-UIB
-nothing to see here
+# Estadística
+nothing to see here (esto ha sido editado)..,.,.,
